@@ -3,8 +3,7 @@
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on SPORTS
 - 📫 How to reach me JUST CALL ME
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: FIND YOURSELF
 
 <!---
 aarav1313atlas/aarav1313atlas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
